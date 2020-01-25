@@ -6,4 +6,4 @@
 
 We are based in Northern California. For more information, please contact us at [info@brilliantlime.com](mailto:info@brilliantlime.com)
 
-Are you looking for [**Brilliant Lime Liquid Entertainment**][tonic.html]
+Are you looking for [**Brilliant Lime Liquid Entertainment**](tonic.html)
