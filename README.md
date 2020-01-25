@@ -6,10 +6,4 @@
 
 We are based in Northern California. For more information, please contact us at [info@brilliantlime.com](mailto:info@brilliantlime.com)
 
----
-
-### Brilliant Lime Liquid Entertainment
-
-**Brilliant Lime Liquid Entertainment** is a Purveyor of Custom Small Batch Tonics. Pairing Brilliant Lime Small Batch Tonic with your favorite Gin or Vodka yields the most amazing drink you have ever tasted. Our small batch tonics are carefully prepared with all natural ingredients and sweetened with agave. We make several different variations of tonic, each with a unique flavor profile.
-
-We are Northern California based in Los Gatos and Truckee. For more information about our tonics, or to find out how to purchase, please contact us at [tonic@brilliantlime.com](mailto:tonic@brilliantlime.com)
+Are you looking for [**Brilliant Lime Liquid Entertainment**][tonic.html]
